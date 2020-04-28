@@ -1,1 +1,0 @@
-# egorkosh.github.io
